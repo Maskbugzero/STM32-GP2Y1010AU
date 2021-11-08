@@ -1,2 +1,2 @@
 # 使用说明
-请点击 https://blog.5772447.xyz/08QG/
+请点击 https://zeuo.eu.org/posts/56821/
